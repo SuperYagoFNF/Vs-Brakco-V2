@@ -10,7 +10,7 @@ Eu to fazendo tudo por enwuanto mas se alguem quiser me ajudar me manda mensagem
 https://gamejolt.com/@Yagou
 Vou estar la quase todos os dias!.
 
-![Brakco The Funk logo1](https://github.com/SuperYagoFNF/Vs-Brakco-V2/assets/166423725/4018156e-0aa6-41d0-89c4-c84eb7ef296b)
+![VS Brakco Logo1](https://github.com/SuperYagoFNF/Vs-Brakco-V2/assets/166423725/2e5430b9-5c9f-4f47-847a-7dc13fbc5a13)
 
 ****ALERTA DE SPOILERS****
 
